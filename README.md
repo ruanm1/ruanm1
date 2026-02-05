@@ -23,12 +23,12 @@ Meu foco principal é absorver conhecimento e aprimorar minhas habilidades como 
 ---
 
 📫 Contato
-LinkedIn: Ruan Montenegro
+LinkedIn: https://www.linkedin.com/in/ruan-montenegro-b9501a33a/
 Email: ruanblt45@gmail.com
 
 ---
 
-✨ "A melhor forma de aprender é ensinando e praticando!"
+✨ "A melhor forma de aprender é praticando!"
 ---
 
 Sinta-se à vontade para conectar-se comigo! 🚀
